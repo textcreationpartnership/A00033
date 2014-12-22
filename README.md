@@ -32,7 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Aduertiſments partly for due order in the publique adminiſtration of common prayers and vſinge the h
+
 1. The Preface.
 
 #####Body#####

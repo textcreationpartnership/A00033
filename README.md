@@ -32,11 +32,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Aduertisments partly for due order in the publique administration of common prayers and vsinge the h
+Aduertiſments partly for due order in the publique adminiſtration of common prayers and vſinge the h
+1. The Preface.
+
 #####Body#####
-Aduertisments partly for due order in the publique administration of common prayers and vsinge the h
+
+1. Articles for doctrine & preachinge.
+
+1. ¶Articles for adminiſtration of prayer and Sacramentes.
+
+1. Articles for certayne orders in eccleſiaſticall policy.
+
+1. Articles for outwarde apparrell of perſons Eccleſiaſticall.
+
+1. Proteſtations to be made, promiſed and ſubſcribed by them that ſhall hereafter bee admitted to any office, roome or cure in any Churche, or other place Eccleſiaſticall.
+
 #####Back#####
-Aduertisments partly for due order in the publique administration of common prayers and vsinge the h
+Imprinted at London by Reginalde Wolfe.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
